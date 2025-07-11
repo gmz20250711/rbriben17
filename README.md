@@ -24,4 +24,4 @@
 除了在线观看外，很多平台还提供下载服务，用户可以在没有网络的情况下观看影片。下载后，用户可以随时在任何地方观看，保证了极大的灵活性。下载时，务必选择平台提供的官方链接，以避免下载恶意软件或病毒文件。  
 
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/gmz20250711/rbriben17 )</span>
